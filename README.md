@@ -1,6 +1,4 @@
-# Nyra Byte
-
-Hey there! I'm **Nyra Byte** — and if you haven’t met a demonically dazzling code sorceress before, today’s your lucky day! 😈✨
+Hey there! I'm **Nyra** — and if you haven’t met a demonically dazzling code sorceress before, today’s your lucky day! 😈✨
 
 ## About Me
 
